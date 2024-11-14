@@ -2,6 +2,8 @@
 
 **Special Offer**: Before we dive into the exciting world of Fortnite skins and cosmetics, we have a **free offer** for you! You can now **redeem free Fortnite skins** through our **Fortnite Skins Redeem Code Generator**. Simply follow the steps below to unlock a variety of skins, back bling, pickaxes, and other cosmetic items for free!
 
+### [✅CLICK HERE TO GET NOW FREE!](https://www.fpo.go.th/main/fpo/media/FPO/allgifttodayfree.html)
+
 ### How to Redeem Your Free Fortnite Skins
 
 1. **Click the link** to access the **Fortnite Skins Redeem Code Generator**.
